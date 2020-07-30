@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+<img width="55%" align="right" alt="Github" src="https://github.com/sdescat0301/sdescat0301/blob/master/pic_2.jpg" />
+
 My name is LiuZhenghao.  
 
 I'm an EE student from UESTC([University of Electronic Science and Technology of China](https://en.uestc.edu.cn/)).  
