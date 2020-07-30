@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-<img width="33%" align="right" alt="Github" src="https://github.com/sdescat0301/sdescat0301/blob/master/pic_2.jpg" />
+<img width="23%" align="right" alt="Github" src="https://github.com/sdescat0301/sdescat0301/blob/master/pic_2.jpg" />
 
 My name is LiuZhenghao.  
 
