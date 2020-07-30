@@ -6,4 +6,4 @@ I'm an EE student from UESTC([University of Electronic Science and Technology of
 
 You can contact me by e-mail -> lzh114514@163.com.  
 
-求实求真，大气大为。
+来一起听歌吧！ [我的网易云歌单](https://music.163.com/#/my/m/music/playlist?id=419815029)  
